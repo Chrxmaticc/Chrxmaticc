@@ -1,2 +1,6 @@
-# Chrxmee-Bio
-Me, myself and I.
+https://komarev.com/ghpvc/?username=Chrxmee-Bits
+
+
+hello!
+
+i am chrxmee.
