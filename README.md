@@ -28,6 +28,8 @@ i make weird sites like an AI site (a site for my beta experimenting AI), and a 
 
 i also go outside, and have time with my parents and eat some 5 star homemade meal (sorry if i made yall hungry)
 
+also! i am a chronically online american. yes american. and me personally i think im pretty chill, my friends said i am chill too, and i have myopia.
+
 ## languages or random shit I use.
 
 Node.js, a bit of HTML and 10% of CSS.
