@@ -1,5 +1,5 @@
 
-![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=Chrxmee-Bits)
+![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=Chrxmaticc)
 
 
 # hi, i am chrxmee.
